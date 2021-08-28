@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gkkApdch
+- 👀 I’m interested in -> a lot of wired stuff, so if you want to talk about anything, technical or not c'mon 
+- 🌱 I’m currently learning -> everything, for now i am just writing trash
+- 💞️ I’m looking to -> collaborate on anything that's public on my page, becouse i don't like to publish trash
+- 📫 How to reach me -> for now i am unsure, just email me and we'll were are we toghether
